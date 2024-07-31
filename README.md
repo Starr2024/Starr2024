@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Starr2024
+https://d37f8419-63aa-48a3-9f35-b19e907ec4fa@api.glitch.com/git/subsequent-scarlet-collision- 👋 Hi, I’m @Starr2024
 - 👀 I’m interested in ... Knowledgeable individuals I can learn from 
 - 🌱 I’m currently learning ...New Codes algorithm variants shapes sizes historical events spiritually legendary 
 - 💞️ I’m looking to collaborate on any open source platforms if any exist created by individuals on any of My Platforms...https://github com > LellaLinton86
